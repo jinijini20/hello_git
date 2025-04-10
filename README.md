@@ -3,6 +3,7 @@
 안녕하세요~
 
 ## 내꺼야 jenny
+good morning![SoExcited~GIF](https://github.com/user-attachments/assets/2c6f9466-22a1-4719-8eb1-3763cb1b31ec)
 
 ## 지희꺼
 # it's me 오ㅡ늘으ㅡㄹ🤣🤣🤣🤣🤣🤣🤣🤣🤣😍😍
